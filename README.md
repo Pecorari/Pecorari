@@ -9,7 +9,7 @@
 
 Olá, Sou apaixonado pela tecnologia, busco cada dia mais aprimorar minhas habilidades, estou atualmente procurando a oportunidade certa para entrar no mercado de trabalho atuando com oque amo.
 
-<br><br>
+<br>
 
 # **_Skils_**
 
